@@ -110,4 +110,4 @@ I recommend checking EmailScaled's $98 Proven Ecom Email Flows. visit https://du
 
 ## Final Thoughts
 
-Email flows are your secret weapon to beat 70% cart abandonment, revive 15% of churned customers, and drive 20-40% revenue lifts. Start with the welcome flow this week, test one subject line from my free guide, and watch your metrics climb. Questions? DM me on X (@EmailScaled) or comment below—I'm here to help you scale!
+Email flows are your secret weapon to beat 70% cart abandonment, revive 15% of churned customers, and drive 20-40% revenue lifts. Start with the welcome flow this week, test one subject line from my free guide, and watch your metrics climb.
